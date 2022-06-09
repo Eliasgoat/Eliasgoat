@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Eliasgoat
+- 👀 I’m interested in Coding like everybody on this platform
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on Java Projects
+- 📫 If you have a nice project dont hesitate to contact me
+- Discord : eliasgoats#4942
